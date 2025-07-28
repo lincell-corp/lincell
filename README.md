@@ -1,2 +1,2 @@
 # lincell
-Lincell – Brand owned by SK (Since Jan 1, 2023)
+Lincell – Brand owned by Shiva Kumar (Since Jan 1, 2023)
