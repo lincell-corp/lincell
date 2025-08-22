@@ -1,5 +1,5 @@
 # lincell
-Lincell – Brand owned by Shiva Kumar (Since Jan 1, 2023)
+Lincell – Brand owned by LALI SHIVA KUMAR (Since Jan 1, 2023)
 ■■ Official Brand Ownership – Lincell®
 Brand Name: Lincell
 Founder & Owner: (Full name: LALI SHIVA KUMAR )
