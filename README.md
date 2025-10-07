@@ -1,30 +1,24 @@
-# lincell
-Lincell – Brand owned by LALI SHIVA KUMAR (Since Jan 1, 2023)
-■■ Official Brand Ownership – Lincell®
-Brand Name: Lincell
-Founder & Owner: (Full name: LALI SHIVA KUMAR )
-Entity: Lincell Corporation (Unregistered — Trademark Reserved by Use)
-Location: Hyderabad, India
-Original Use Date: January 1, 2023
-Digital Presence: https://lincell-corp.github.io/lincell
-■■ LEGAL NOTICE: INTELLECTUAL PROPERTY PROTECTION
-The name “Lincell”, its brand identity, concept, logo, digital presence, and associated
-intellectual property are the exclusive original property of LALI SHIVA KUMAR. This name was created and
-first used publicly on January 1st, 2023, and has since been used in association with
-software development, game publishing, mobile/web apps, IT tools, and digital platforms.
-■ TRADEMARK WARNING
-This name is not available for trademark registration, resale, duplication, imitation, or use
-in any format globally. Any attempt to register, copy, or imitate the brand may result in
-legal actions including DMCA notices, cease-and-desist orders, and public disclosure of
-infringers.
-■ OFFICIAL PROOF OF OWNERSHIP
-This document affirms the original ownership by LALI SHIVA KUMAR, use in commerce since January 1,
-2023, and the jurisdictional claim based in Hyderabad, India. This document serves as
-timestamped public proof.
-■ ACCEPTED TERMS FOR VIEWERS
-By viewing this document or related pages, you agree not to use or attempt to register the
-name 'Lincell' in any tech or digital context. All conflicts should be referred directly to 
-(LALI SHIVA KUMAR ).
-© 2023–2025 Lincell Corporation. All rights reserved.
-This PDF is a legal declaration of brand ownership and digital timestamp for the Lincell
-name and identity
+AFFIDAVIT OF SOLE BRAND OWNERSHIP AND INTELLECTUAL PROPERTY RIGHTS
+I, LALI SHIVA KUMAR, the sole and ORIGINAL CREATOR, OWNER, and LEGAL AUTHORITATIVE HOLDER of the brand name “Lincell”, do hereby solemnly declare and assert the following:
+
+1. Exclusive Creation and Ownership
+Lincell is an exclusive, original, and fiercely protected brand identity, first publicly and continuously used by me since January 1, 2023. It represents a flagship name in the realms of software development, cutting-edge game creation, mobile and web application innovation, IT tools, and digital technology solutions.
+
+2. Absolute Intellectual Property Rights
+All rights, titles, interests, and claims to the Lincell brand, including its logo, design, concept, digital presence, and all proprietary elements, are owned solely and unequivocally by me, LALI SHIVA KUMAR. This ownership is absolute, irrevocable, and enforceable under all applicable laws.
+
+3. Powerful Trademark Status by Use
+Though unregistered, the Lincell trademark enjoys supreme protection under common law and intellectual property statutes by virtue of exclusive use and public recognition dating back to its first use date. ANY form of unauthorized registration, reproduction, imitation, infringement, or exploitation of Lincell will invoke the strongest legal consequences.
+
+4. Relentless Legal Enforcement
+I wield the full force of law to protect Lincell. Any infringement, unauthorized use, or attempt to replicate or dilute this brand anywhere in the world will be met with immediate and unstoppable legal action. This includes DMCA takedown requests, cease-and-desist orders, civil litigation, and full public exposure of offenders.
+
+5. Ironclad Binding Terms
+By accessing or interacting with any material or platform associated with Lincell, all parties irrevocably agree to refrain from any unauthorized use, registration, or misappropriation of the brand or its intellectual properties. Any violation is a direct breach of legal statutes and will be prosecuted to the fullest extent.
+
+Signed and sworn this [Date]
+
+LALI SHIVA KUMAR
+Founder, Sole Proprietor, and Supreme Legal Owner of Lincell
+
+© 2023–2025 Lincell. All rights reserved. All rights vigorously protected.
