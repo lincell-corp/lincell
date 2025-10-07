@@ -16,7 +16,7 @@ I wield the full force of law to protect Lincell. Any infringement, unauthorized
 5. Ironclad Binding Terms
 By accessing or interacting with any material or platform associated with Lincell, all parties irrevocably agree to refrain from any unauthorized use, registration, or misappropriation of the brand or its intellectual properties. Any violation is a direct breach of legal statutes and will be prosecuted to the fullest extent.
 
-Signed and sworn this [Date]
+Signed and sworn this January 1, 2023.
 
 LALI SHIVA KUMAR
 Founder, Sole Proprietor, and Supreme Legal Owner of Lincell
